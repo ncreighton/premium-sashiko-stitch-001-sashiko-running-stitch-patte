@@ -1,0 +1,2 @@
+# premium-sashiko-stitch-001-sashiko-running-stitch-patte
+Tired of scattered sashiko inspiration across Pinterest boards and dog-eared notebooks? The Sashiko Running Stitch &amp; Pattern Craft Hub centralizes everything you need—pattern libraries, stitch guides, project tracking, and design inspiration—in one beautifully organized Notion workspace.  This isn't just another pattern reference. The Sashiko Runni
